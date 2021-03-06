@@ -3,8 +3,8 @@
 Adicionem suas duplas:
 
 ### Grupo 1
-*
-*
+* Hugo Velasco
+* Hugo Fumero
 
 ### Grupo 2
 *
